@@ -1,1 +1,1 @@
-# What the fuck even is that?
+# For Fun
